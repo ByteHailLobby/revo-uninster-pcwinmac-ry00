@@ -1,4 +1,4 @@
-# 
+# Personalizado Revo Uninstaller scripts para Mac OS | Elite Revo Uninstaller scripts para PC Windows. Com localizador de arquivos duplicados e gerenciamento de janelas — otimizado para máximo desempenho em cada plataforma.
 
 
 
